@@ -231,4 +231,4 @@ Nitronic Rush is the official full version available for free download, featurin
 Ready to experience the ultimate racing challenge? **Download Nitronic Rush now and start your adventure!**
 
 ---
-**Last updated:** 2026-11-14 02:08:09 UTC
+**Last updated:** 2026-11-14 09:57:37 UTC
